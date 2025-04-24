@@ -16,6 +16,7 @@ so yeah, it's a bit more powerful than what you'll find floating around on githu
 
 nothing here, for now. the actual tool isn't public.
 why? because it's not free. and let's be real, you probably know why that makes sense.
+update: there's a free version that lets you use it 3 times. more info at https://github.com/gr8m00d/soundcloud-ripper/releases/tag/free
 
 ## 💬 interested?
 
