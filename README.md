@@ -19,7 +19,7 @@ why? because it's not free. and let's be real, you probably know why that makes 
 
 ## 💬 interested?
 
-if you're serious about getting access, hit me up on discord: **`wvwvwvwvwvwvwvwwvvwvww`**
+if you're serious about getting access, hit me up on discord: **`gr8m00d`**
 
 (you can also ask me any questions before you buy, no worries)
 
